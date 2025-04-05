@@ -4,4 +4,7 @@ creative analysis :
 1. https://github.com/akshat5002/business-reports-analysis-/blob/main/Screenshot%202025-04-05%20125419.png
 2.  https://github.com/akshat5002/business-reports-analysis-/blob/main/Screenshot%202025-04-05%20125419.png
 3.  https://github.com/akshat5002/business-reports-analysis-/blob/main/Screenshot%202025-04-05%20125500.png
-4.  https://github.com/akshat5002/business-reports-analysis-/blob/main/Screenshot%202025-04-05%20125539.png 
+4.  https://github.com/akshat5002/business-reports-analysis-/blob/main/Screenshot%202025-04-05%20125539.png
+
+
+all details:    
